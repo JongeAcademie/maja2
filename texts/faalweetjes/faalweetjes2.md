@@ -1,0 +1,7 @@
+# ![Faalweetjes 1](runamo-mendel.png)
+
+**Een gat in zijn geschiedenis** In 2005 bestudeert de Duitse geschiedkundige Heribert Illig de kerkelijke geschiedenis. Hij komt tot een schokkende vaststelling: de jaren 614 tot 911 hebben nooit plaatsgevonden. Ze zijn overgeslagen en de weergave van de geschiedenis van die tijd is gefabriceerd. Dat alles opdat de Duitse koning Otto III in het magische jaar 1000 zou regeren. Illigs vergissing berust (onder andere) op een fout die gemaakt werd toen de gevolgen van de overgang van de Juliaanse naar de Gregoriaanse kalender in 1582 nagerekend werd.
+
+**Kribbelkrab** In de middeleeuwen worden inscripties waargenomen op Runamo, een rots in Zweden. Eeuwenlang proberen wetenschappers de runentekens te ontcijferen. In 1833 meent de Deens-IJslandse onderzoeker en nationalist Finnur Magnússon een volledig episch oorlogsgedicht te ontwaren, niet toevallig in het IJslands. Amper tien jaar later wordt aangetoond dat het gaat om volstrekt natuurlijke spleten in de rotswand.
+
+**Denkfoutje** Wanneer Charles Darwin in 1859 zijn evolutietheorie presenteert, gaat hij ervan uit dat soorten evolueren doordat kinderen de eigenschappen van hun ouders in een mengvorm meekrijgen. Helaas kan dat niet juist zijn — het zou betekenen dat kleine mutaties uitgevlakt worden, in plaats van versterkt. Pas in 1940 wordt die schijnbare contradictie ontkracht aan de hand van de experimenten die Gregor Mendel in de negentiende eeuw uitvoerde met erwten — en waarmee hij net de evolutietheorie wilde ontkrachten!

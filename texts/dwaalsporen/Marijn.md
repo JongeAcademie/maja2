@@ -1,0 +1,28 @@
+# Marijn Vandenberghe
+
+✒ Sophie Dejaegher :twitter: @SophieDejaegher
+
+∑ Marijn Vandenberghe is doctoraatsstudent aan de UGent, waar hij onderzoek doet naar Joodse opstanden in de eerste eeuw na Christus. Met zijn achtergrond in de elektronica leek hij daarvoor echter helemaal niet voorbestemd. Een apart curriculum dus, dat een bijzonder licht werpt op het falen en dwalen van oriëntering in het secundair en hoger onderwijs.
+
+❝ Ik ben eigenlijk geen dwaler, maar eerder te vaak uit wandelen gestuurd. ![](MarijnVandenberghe.jpg#x50y30 "© foto: Sophie Dejaegher")
+
+‘Het probleem van telkens weer falende studenten wordt tegenwoordig vaak bij de universiteit gelegd. Maar ik heb zelf als universiteitsstudent nooit het gevoel gehad dat er te weinig kansen tot remediëring of bijsturing zijn. Integendeel, de universiteit was voor mij een baken van vrijheid en verlichting na mijn ervaringen in het secundair onderwijs. Helaas wringt de universiteit zich in allerlei bochten om studieproblemen op te lossen die eigenlijk het gevolg zijn van maatschappelijke druk, in zekere zin, maar bovenal van het middelbaaronderwijssysteem.’
+
+### Q: Nochtans begon jouw secundair onderwijs niet noemenswaardig slecht.
+Ik volgde ASO en had aan het einde van het tweede middelbaar 69 procent. Een score die nog allerlei richtingen uit kon, ware het niet dat de focus van de leerkrachten en de school toen op Frans en wiskunde lag. Ik toonde inderdaad geen buitensporige interesse voor die vakken. Mijn enige passie was geschiedenis, maar daar was volgens mijn leraars geen toekomst voor. Elektronica, daar zou ik pas iets mee kunnen doen later. Mijn ouders geloofden de school en ik geloofde mijn ouders. Op je veertiende ben je zo ongelooflijk beïnvloedbaar. Ik heb een tijd als privéleraar gewerkt en zag daar net hetzelfde: jongeren nemen alles aan wat over hen wordt gezegd, tot in het absurde. De ironie wil dat de opleiding elektronica mij nog meer wiskunde en dus nog minder passie bracht. Alleen vakken waarin de link met maatschappelijke problemen werd gelegd, boeiden me. De techniek van zonnepanelen, bijvoorbeeld, bezielde mij nauwelijks, maar wel wat de mogelijkheden en beperkingen ervan zijn om het klimaatprobleem aan te pakken.
+
+### Q: Je hebt als achttienjarige dan toch meteen voor de lerarenopleiding geschiedenis gekozen. Had je toen geen twijfels?
+Weinig. Het is wellicht gewoon mijn aard om volop voor een passie te gaan. Ik was nauwelijks enkele weken bezig met mijn lerarenopleiding toen ik al wist dat ik daarna nog de universitaire opleiding geschiedenis zou volgen. Ik heb daarover wel eerst informatie ingewonnen, maar zowel professor Koen Verboven als mijn promotor professor Peter Van Nuffelen hebben mij indertijd de boodschap gegeven: ‘Goede wetenschap is een beetje talent en heel veel hard werken.’ Misschien heb ik door mijn ongewoon parcours net geleerd om hard te werken. Ik zou interesse en doorzettingsvermogen nu in elk geval de belangrijkste drijfveren en criteria voor hoger onderwijs noemen.
+
+❝ Na mijn ervaringen in het ASO was de universiteit een baken van vrijheid en verlichting.
+
+### Q: Je werkt nu aan je doctoraat, maar hebt wel even lesgegeven. Heb je als leraar de valkuilen gezien waarin je zelf bent terechtgekomen?
+Ik zag ze, maar je bent als leraar niet echt in staat ze te verhelpen. In klassen van bijna dertig leerlingen wordt het erg moeilijk te peilen naar talent en eigenheid. Dat is ontzettend jammer. Het ergste vind ik nog steeds het watervalsysteem, ingegeven door een maatschappelijke afkeuring van zogezegd minder intellectuele richtingen. Wees maar eens geïnteresseerd in een breed domein zoals menswetenschappen, kies vervolgens bewust voor een opleiding als ‘humane wetenschappen’ en krijg dan te horen dat die richting bestempeld wordt als ‘de vuilnisbak van het ASO.’ Wie creëert nu zo’n beeld? Niet de leerlingen, toch?
+
+❝ Ik ga ervan uit dat ik in de academische wereld beoordeeld word op wat ik presteer binnen die wereld en niet op wat eraan voorafging.
+
+### Q: Heb je dan zelf voorstellen voor verbetering?
+Ik denk dat het secundair onderwijs dringend oplossingen moet zoeken voor de steeds toenemende schoolmoeheid. Geef leerlingen misschien de kans om keuzevakken te volgen of om in graadoverschrijdende werkgroepen aan de slag te gaan, zodat het voor iedereen boeiend blijft. En universiteiten moeten geen toelatingsproeven invoeren; die zijn niet meer dan een importproduct van een slecht werkend watervalsysteem uit het secundair onderwijs.
+
+### Q: Heb jij zelf spijt van je parcours? Stoort het je dat ik nu met je praat precies omdat ik te horen heb gekregen dat je vanuit je vooropleiding elektronica bij een doctoraat geschiedenis bent aanbeland?
+Ik ga ervan uit dat ik in de academische wereld beoordeeld word of zal worden op wat ik presteer binnen die wereld en niet op wat eraan voorafging. Ik vind ook absoluut niets verkeerds aan een diploma elektronica. Alleen is dat diploma in mijn concrete geval het resultaat van een jammerlijk falen van studiebegeleiders die maar niet konden loskomen van het hiërarchische hokjesdenken. Ik ben niet de typische eindeloze dwaler tegen wie de universiteit of maatschappij misschien inderdaad actie moet ondernemen. Ik ben gewoon te vaak uit wandelen gestuurd. Daardoor merk ik nu dat ik meer dan mijn collega’s moet vechten tegen een gebrek aan cultureel kapitaal. Mijn Frans en Duits zijn misschien minder goed en ik heb me een vorm van argumentatie eigen moeten maken die enkele jaren geleden nog nieuw voor me was. Het inhaalmanoeuvre is zwaar en niet romantisch. Maar de tragedie lag in het secundair onderwijs.
