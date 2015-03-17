@@ -7,7 +7,7 @@
 - **Jana Asselman** is bio-ingenieur en postdoctoraal onderzoeker aan Notre Dame University ( Indiana, VS).
 - **Goedele De Clerck** is politiek wetenschapper en postdoctoraal onderzoeker aan de Universiteit Gent.
 - **Inge De Clercq** is bio-ingenieur en postdoctoraal onderzoeker aan La Trobe University (Melbourne).
-- **Tim Durinck** is chemisch ingenieur en postdoctoraal onderzoeker aan het Georgia Institute of Technology (VS) en Northwestern University (Illinois, VS).
+- **Tim Duerinck** is chemisch ingenieur en postdoctoraal onderzoeker aan het Georgia Institute of Technology (VS) en Northwestern University (Illinois, VS).
 - **Evelien Geerts** is filosoof en doctoraatsstudent gender studies aan de University of California (Santa Cruz, VS).
 - **Pieter Levecque** is bio-ingenieur en professor aan de University of Cape Town (Zuid-Afrika).
 - **Thomas Pattyn** is psychiater en doctoraatsstudent aan de Universiteit Antwerpen en de Universiteit Amsterdam.
